@@ -31,3 +31,5 @@ The drive scan option will allow you to scan a particular drive. After **scannin
 So, now you can simply **plug-in** your USB and scan it with this program and then you can easily get access to your data.
 
 [Read Full Article](https://www.thebateam.org/2020/02/shortcut-virus-remover-2-0/)
+
+YOUTUBE LINK- [![SHORTCUT VIRUS REMOVER](https://img.youtube.com/vi/https://www.youtube.com/watch?v=B8ta9KMswRA/0.jpg)](https://www.youtube.com/watch?v=https://www.youtube.com/watch?v=B8ta9KMswRA)
