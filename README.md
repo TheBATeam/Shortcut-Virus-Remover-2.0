@@ -32,4 +32,3 @@ So, now you can simply **plug-in** your USB and scan it with this program and th
 
 [Read Full Article](https://www.thebateam.org/2020/02/shortcut-virus-remover-2-0/)
 
-YOUTUBE LINK- [Shortcut Virus Remover](https://www.youtube.com/watch?v=B8ta9KMswRA)
